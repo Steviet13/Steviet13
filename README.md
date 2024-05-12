@@ -14,3 +14,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+I'm currently working on software development, specifically full stack.
+I'm currently learning Java.
+I'm looking to collaborate on interesting projects, reach out!
+I'm currently looking for help with soft skills, any advice is appreciated!
+Ask me about personal or professional interests! (video games)
+How to reach me: stevenjturner013@gmail.com.
+Fun fact: I have a number of fingers that are double jointed, I can make my index finger touch the back of my hand!
